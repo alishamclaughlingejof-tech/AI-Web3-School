@@ -23,7 +23,7 @@ AI x Web3 School
 # 2026-05-23
 <!-- DAILY_CHECKIN_2026-05-23_START -->
 
-sophia老师讲课非常nice！！！！
+sophia老师讲课非常nice！！！！以后我要加强我英语的学习
 <!-- DAILY_CHECKIN_2026-05-23_END -->
 
 # 2026-05-22
